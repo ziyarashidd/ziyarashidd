@@ -18,8 +18,6 @@
 
 - 📫 How to reach me **ziyarashid204@gmail.com**
 
-- 📄 Know about my resume [https://drive.google.com/file/d/1ln3IrEH66gaglM20RWzfEAeDefjL_G98/view?usp=drivesdk](https://drive.google.com/file/d/1ln3IrEH66gaglM20RWzfEAeDefjL_G98/view?usp=drivesdk)
-
 - ⚡ Fun fact **I am funny**
 
 <h3 align="left">Connect with me:</h3>
